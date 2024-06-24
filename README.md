@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Diaaid35
+- 👀 I’m interested in coding
+- 🎬🎵📖🥊
